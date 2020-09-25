@@ -1,2 +1,2 @@
-# Adobe-PS-and-AE
-Some of my works done on Photoshop and AfterEffects are shared here
+# Adobe-PS-work
+Some of my works done on Photoshop are uploaded here
